@@ -64,7 +64,7 @@ $${\color{#FAC6DCFF} ୨𝑒 ꒱ \space she \space / \space her \space :: \space
 <summary> $${\color{#FAC6DCFF} txt \space txt \space txt}$$ </summary>
 
 ![NkCvA3V](https://github.com/user-attachments/assets/099a6815-e022-4da0-9eda-1c75a3dd1c85)
-₊˚ ┊ My FAVORITE color is blue and pink!
+₊˚ ┊ My FAVORITE colors are blue & pink!
 
 ![NkCvA3V](https://github.com/user-attachments/assets/099a6815-e022-4da0-9eda-1c75a3dd1c85)
 ₊˚ ┊ I will support all my friends and others around!
