@@ -37,7 +37,7 @@ $${\color{#FAC6DCFF} ୨𝑒 ꒱ \space she \space / \space her \space :: \space
 ₊˚ ┊ Im a big fan of Dandy from Dandy's World and Eternal Sugar!
 
 ![NkCvA3V](https://github.com/user-attachments/assets/099a6815-e022-4da0-9eda-1c75a3dd1c85)
-₊˚ ┊ Dandy has a very special place in my heart and I like to call myself his #1 fan since I have so much stuff about him
+₊˚ ┊ Dandy has a very special place in my heart and I like to call myself his #1 fan since I have so much stuff about him , DNI IF YOU CLAIM TO BE DANDY's #1 FAN!
 
 ![NkCvA3V](https://github.com/user-attachments/assets/099a6815-e022-4da0-9eda-1c75a3dd1c85)
 ₊˚ ┊ I have a healthy relationship with my girlf for 5 years!!
@@ -51,7 +51,7 @@ $${\color{#FAC6DCFF} ୨𝑒 ꒱ \space she \space / \space her \space :: \space
 ₊˚ ┊ Lesbain + Slightly Aroace
 
 ![QgrNNSU](https://github.com/user-attachments/assets/a9ec07b2-b104-4243-ad01-35aa2de741e7)
-₊˚ ┊ PLEASE DON'T HARASS ME OR MY GIRLF!!
+₊˚ ┊ DNI if any sex related topics or just weird in general
 
 ![QgrNNSU](https://github.com/user-attachments/assets/a9ec07b2-b104-4243-ad01-35aa2de741e7)
 ₊˚ ┊ Been playing cookie run since 2021
@@ -70,4 +70,4 @@ $${\color{#FAC6DCFF} ୨𝑒 ꒱ \space she \space / \space her \space :: \space
 ₊˚ ┊ I will support all my friends and others around!
 
 ![NkCvA3V](https://github.com/user-attachments/assets/099a6815-e022-4da0-9eda-1c75a3dd1c85)
-₊˚ ┊ WE all LOVE cats.
+₊˚ ┊ WE all LOVE seals
