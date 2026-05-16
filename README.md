@@ -1,12 +1,7 @@
-<p align="center"><img width="869" height="423" alt="image" src="https://github.com/user-attachments/assets/9e2b17af-7bbb-4cde-ae19-4130362d8511" />
+<p align="center"><img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/e229a097-6b46-40c2-a072-4cebe40afe9c" />
 
 
 
-not  my  art btw  
-
-
-
-<img width="766" height="794" alt="image" src="https://github.com/user-attachments/assets/1ac4e49e-4026-4ad1-8e05-69fa0113f93e" />
 
 
 
